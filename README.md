@@ -3,8 +3,8 @@
 
 **About me: 🪴**
 
-I am a recent interdisciplinary studies graduate at Arizona State University<br />
-I love finding ways to blend programming with art<br />
+:sunny: I am a recent interdisciplinary studies graduate at Arizona State University<br />
+:art: I love finding ways to blend programming with art<br />
 
 **How to reach me**
 
