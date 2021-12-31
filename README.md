@@ -1,4 +1,4 @@
-### Hi there, I am Jaiden ![ezgif-3-d7ca2ad45b](https://user-images.githubusercontent.com/8977333/147840202-16d1be92-1bfe-4656-89c5-7f11a5de6183.gif)
+### Hi there, I'm Jaiden ![ezgif-3-d7ca2ad45b](https://user-images.githubusercontent.com/8977333/147840202-16d1be92-1bfe-4656-89c5-7f11a5de6183.gif)
 
 
 **About me: 🪴**
