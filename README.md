@@ -8,4 +8,4 @@
 
 **How to reach me**
 
-💌 [LinkedIn] (https://www.linkedin.com/in/jaiden-esprit-250568202/)
+💌 [LinkedIn](https://www.linkedin.com/in/jaiden-esprit-250568202/)
